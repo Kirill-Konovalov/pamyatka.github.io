@@ -1,1 +1,0 @@
-# pamyatka.github.io
